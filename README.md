@@ -2,7 +2,7 @@
 - 👀 I’m interested in gaming
 - 🌱 I’m currently learning gaming
 - 💞️ I’m looking to collaborate on gaming
-- 📫 How to reach me you cant
+- 📫 How to reach me Discord NavoiiGamer#3149
 
 <!---
 Navoii/Navoii is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
